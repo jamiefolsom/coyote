@@ -1,4 +1,4 @@
-Coyote Marries His Own Daughter
+## Coyote Marries His Own Daughter
 
 Coyote started back to his home. He had a family and among his children he had a grown daughter, just old enough to get married. He was getting tired of his wife and he wished he could find some way to marry his daughter.
 
